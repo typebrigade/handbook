@@ -1,0 +1,3 @@
+# Tomorrw’s waitlist for Type Brigade
+
+Hi there,  Thanks for registering for the Type Brigade meetup on type design and typography! The event is tomorrow, and it looks like you’re on the waitlist right now. I’ve asked everyone to keep their RSVP up-to-date so more slots may become available.  If there’s less than ten people on the waitlist, we’ll hopefully have space for everyone. You can tweet @typebrigade if you have any questions, or call 778 722 1587 anytime after 6:30 tomorrow and we’ll confirm if there’s space for you as quickly as possible.  Thanks, Kenneth Ormandy
