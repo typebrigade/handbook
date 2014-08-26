@@ -1,8 +1,14 @@
-# Tomorrow is Type Brigade
+# _Tomorrow_ is Type Brigade
 
-Hi everyone,  Just a quick reminder that Type Brigade is tomorrow! We’ll be starting right around 7:00PM, so feel free to arrive anytime after 6:30.  The event is at Mobify HQ, on the 3rd Floor of 948 Homer Street, Vancouver. If you have trouble finding it, tweet @typebrigade or call 778 722 1587.
+Hi everyone,
+Just a quick reminder that Type Brigade №_#_ is _tomorrow_! Can’t wait to see you there.
 
-Please update your RSVP if you're not able to attend tomorrow, so there’s room for people on the waiting list.
+- Doors are at 6:30PM
+- Talks begin right at 7:00PM
+- No admittance during talks
 
-Looking forward to seeing you tomorrow,
-Kenneth Ormandy
+The event is at Mobify HQ, on the 3rd Floor of 948 Homer Street, Vancouver. If you have trouble finding it, tweet @typebrigade, or call/text me at 780 952 2077.
+
+If it looks like you aren’t able to make it, could you help us out and change your RSVP to “NO” so we can open up your spot to someone on the waiting list? Thanks very much!
+
+See you at Type Brigade, Kenneth
